@@ -8,4 +8,3 @@
 
 [Linkedin](https://www.linkedin.com/in/takashiuyeno)
 <br>
-[Instagram](https://www.instagram.com/takasheets)
