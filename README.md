@@ -1,5 +1,5 @@
 ### Olá, meu nome é Takashi 👋
-- 👨🏻‍💻 Partner e CFO na [MCFO Company](https://www.linkedin.com/company/mcfo-company)
+- 👨🏻‍💻 Partner e CFO na [Masa](https://www.linkedin.com/company/mcfo-company)
 - ♥ Apaixonado por planilhas
 - 💻 Fascinado por tecnologia
 - 👨‍🎓 Engenheiro Civil (UEM)
